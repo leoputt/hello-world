@@ -1,2 +1,5 @@
 # hello-world
-just another repository
+
+HI HUMANS!
+
+DEVILS IS HERE, AND I LIKE TO FUCKING EVERYTHING
